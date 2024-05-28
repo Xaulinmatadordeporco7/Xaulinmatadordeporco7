@@ -9,4 +9,4 @@
 - 😄 pronomes: ela/dela
 - ⚡ curiosidades: odeio frio
 
-![gatinho sorrindo](https://tenor.com/bRoOD.gif)
+![gatinho sorrindo](https://media1.tenor.com/m/U28V2bPGlgUAAAAd/gato-sorrindo.gif)
